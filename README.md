@@ -1,2 +1,0 @@
-# Student-Talk-Laude
-podcast
